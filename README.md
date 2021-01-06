@@ -9,7 +9,9 @@ You can find me in your life or You can Reach me on [Instagram](https://www.inst
 **About My Personality**
 
 😻 My Hobbies are Jogging 🏃 , Badminton 🎾 : Writting & Reading 📚: also stalk everything that catch my eyes :D  
+
 😻 I'm learning React js:
+
 😻 Currently living in Bogor, West Java, Indonesia | Sweet Home 💒:
 
 &nbsp;
