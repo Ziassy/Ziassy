@@ -12,6 +12,8 @@ You can find me in your life or You can Reach me on [Instagram](https://www.inst
 
 😻 I'm learning React js:
 
+😻 I wanna be a Fullstack Web Developer 
+
 😻 Currently living in Bogor, West Java, Indonesia | Sweet Home 💒:
 
 &nbsp;
