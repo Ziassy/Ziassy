@@ -1,4 +1,4 @@
-## HI! 👋, Let's know me more. I'm Pauziah, Front End Developer!
+## HI! 👋, Let's know me more. I'm Pauziah, QA Engineer!
 
 [![Linkedin Badge](https://img.shields.io/badge/-LinkedIn?style=plastic&logo=Linkedin&link=https://www.linkedin.com/in/pauziah-9a514b177/)](https://www.linkedin.com/in/pauziah-9a514b177/) 
 [![Telegram Badge](https://img.shields.io/badge/-Telegram-blue?style=plastic&logo=telegram&link=https://t.me/ziassy)](https://t.me/ziassy) 
