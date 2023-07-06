@@ -32,5 +32,7 @@ You can find me in your life or You can Reach me on [Instagram](https://www.inst
 <a href="https://instagram.com/fauziiyaa._" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="ixahmedxi" height="30" width="40" /></a>
 
 &nbsp;
+<div align="center">
 
 💖💖**Full Of Love** 💖💖
+</div>
